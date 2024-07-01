@@ -1,2 +1,2 @@
 # test
-i am a smart 
+i am a slave 
